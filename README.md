@@ -1,2 +1,2 @@
 # GitHub.io
-"My export company website"
+"Thank you for visiting my website. Let's go shopping.
